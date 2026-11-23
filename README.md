@@ -1,0 +1,1 @@
+# Kuleshov_Roman_23.11.2026_Task_2
